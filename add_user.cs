@@ -1,0 +1,1 @@
+https://www.quora.com/What-could-be-the-bigger-picture-of-the-whole-cow-protection-phenomenon-and-related-issues-like-violence-arising-from-it-in-India-What-do-neutral-people-think-about-it
